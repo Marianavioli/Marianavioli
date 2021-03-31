@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Marianavioli, a trans-human with no money!
+- 👀 I’m interested in Design, Anthropology and Futurology.
+- 🌱 I’m currently researching for a master's degree.
+- 💞️ I’m looking to collaborate on social cause.
+- 📫 How to reach me marianavioli@gmail.com or Instagram @marinchains.
